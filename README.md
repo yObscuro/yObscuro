@@ -4,7 +4,7 @@
 📱   ・ Quer Conversar Comigo?
 🏴・ ₊˚! ʚObscuroɞ # 0001
 
-// Me Siga no:
+Me Siga no:
 https://twitter.com/LilObscuro_
 https://www.twitch.tv/zObscuro
 https://www.youtube.com/channel/UClzwacVAFUi-Yph1z4J_2rw 
